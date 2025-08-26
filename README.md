@@ -2,6 +2,9 @@
 
 The Union Public Service Commission (UPSC) Civil Services Examination (CSE) stands as one of India's most esteemed competitive tests. Conducted by the UPSC, this exam aims to select candidates for key government roles, including the Indian Administrative Service (IAS), Indian Police Service (IPS), and Indian Foreign Service (IFS). The process unfolds in three phases: the Preliminary Exam, the Main Exam, and the Personality Test.
 
+<img width="1280" height="720" alt="Best Psychology Optional IAS Coaching" src="https://github.com/user-attachments/assets/25718481-d026-4bc2-8460-360e6b69c321" />
+
+
 Within the Main Exam, candidates must select an optional subject, and Psychology emerges as a popular choice. This optional comprises two papers. Paper I explores core areas like the basics of psychology, research methods, developmental stages, sensory processes, and drives. Paper II focuses on practical applications, covering topics such as group dynamics, workplace psychology, assessment tools, and guidance techniques.
 
 ## Plutus IAS: Leading the Way in Psychology Optional Coaching in Delhi
